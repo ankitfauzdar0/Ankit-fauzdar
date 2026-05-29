@@ -25,16 +25,16 @@ I am passionate about:
 
 ## 🌐 My Websites
 
-   - https://www.indupaper.com/
+  https://www.indupaper.com/
    
-  - https://ankit.seoexpertagra.in/
+  https://ankit.seoexpertagra.in/
   
 - https://techtodays.net/
   
 - https://dentistinnewdelhi.in/
 - keywoad ranking :
   
--  best dentist in Lajpat Nagar
+  best dentist in Lajpat Nagar
 
   dentist in Lajpat Nagar
   
