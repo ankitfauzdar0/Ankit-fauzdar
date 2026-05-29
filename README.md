@@ -24,17 +24,18 @@ I am passionate about:
 - AI Content Optimization
 
 ## 🌐 My Websites
-   https://www.indupaper.com/
+
+   - https://www.indupaper.com/
    
-  https://ankit.seoexpertagra.in/
+  - https://ankit.seoexpertagra.in/
   
 - https://techtodays.net/
-- 
+  
 - https://dentistinnewdelhi.in/
 - keywoad ranking :
   
 -  best dentist in Lajpat Nagar
--  
+
   dentist in Lajpat Nagar
   
   dentist in east of kailash
@@ -70,8 +71,8 @@ I am passionate about:
 
 - https://theseobyte.in/
 - Keywoad Ranking =
-- 
-- 1	seo company agra
+
+ 1	seo company agra
   
  2	seo company in agra
 
@@ -83,20 +84,20 @@ I am passionate about:
  
  7	digital marketing company in agra
  
- 	digital marketing agency in agra
+ 8	digital marketing agency in agra
   
 - https://dharmadiabetesclinics.com/
 - keywoad ranking =
-- 
+  
    1	best diabetes doctor in delhi   2
   
-  2	best diabetologist in delhi       	7
+   2	best diabetologist in delhi       	7
   
- 	diabetologist in delhi 	            7
+ 3	diabetologist in delhi 	            7
   
  4	best doctor for thyroid in delhi 	 6
  
- 	thyroid specialist doctor in delhi 	13
+ 5	thyroid specialist doctor in delhi 	13
 	
  6	thyroid treatment                 	2
  
@@ -110,8 +111,8 @@ I am passionate about:
 		
 - https://bestcancerdoctoram.in/
 - keywoad ranking
-- 
-- 1	oncologist in Greater Noida				  	15
+
+ 1	oncologist in Greater Noida				  	15
   
 2	best cancer doctor in Greater Noida			15
 
