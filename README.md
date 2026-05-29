@@ -47,11 +47,11 @@ I am passionate about:
 - https://drshubhityagi.in/
 - Keywoad ranking =
   
-- ent doctor greater noida
+  ent doctor greater noida
   
   ent specialist in greater noida
   
-   sleep apnea specialist
+  sleep apnea specialist
   
   best ent doctor in noida
   
@@ -89,9 +89,9 @@ I am passionate about:
 - https://dharmadiabetesclinics.com/
 - keywoad ranking =
   
-   1	best diabetes doctor in delhi   2
+  1	best diabetes doctor in delhi   2
   
-   2	best diabetologist in delhi       	7
+ 2	best diabetologist in delhi       	7
   
  3	diabetologist in delhi 	            7
   
